@@ -1,4 +1,5 @@
-# Каримов Мурат — Digital Product Designer
+# Каримов Мурат 
+Digital Product Designer
 
 ## Контакты
 - **Email:** mikarkari@gmail.com  
